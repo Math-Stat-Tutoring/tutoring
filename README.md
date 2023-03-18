@@ -1,4 +1,3 @@
-# tutoring.github.io  
 Contact stats.maths.tutoring@gmail.com for all your math and stat assignment/tutoring needs.</endl>  
 $20 CAD for 1 hour tutoring session (Upto 2nd year mathematics)  
    
